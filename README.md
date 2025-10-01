@@ -1,7 +1,7 @@
 ## Aloha :3
 
 - 😎 I am: Slim / Noah
-- 😄 Pronouns: [en.pronouns.page/@slimeight](en.pronouns.page/@slimeight)
+- 😄 Pronouns: [pronouns.page](https://en.pronouns.page/@slimeight)
 - 🔭 I’m currently working on: making **too much**
 - 🌱 I’m currently learning: how to be an epic person, along with piano.
 - 💬 Ask me about: _my special interests..._
