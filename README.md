@@ -1,7 +1,7 @@
 ## Aloha :3
 
 - 😎 I am: Slim / Noah
-- 🔭 I’m currently working on: **too much**
+- 🔭 I’m currently working on: making **too much**
 - 🌱 I’m currently learning: how to be an epic person, along with piano.
 - 💬 Ask me about: _my special interests..._
 - 📫 How to reach me: uhhhh, dm me @slimeight on discord
