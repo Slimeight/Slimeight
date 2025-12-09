@@ -7,7 +7,7 @@
 - 💬 Ask me about: _my special interests..._
 - 📫 How to reach me: uhhhh, dm me @slimeight on discord
 - ❤️ Special interests: Weird Music, Indie Games, Film, Cool/Obscure/Weird Tech 
-- 🎼 Top five bands: Animal Collective, Glass Beach, Will Wood, Ariel Pink, AJR
+- 🎼 Top five bands: Animal Collective, Glass Beach, Will Wood, King Gizzard and the Lizard Wizard, Ariel Pink
 - 🎮 Top five games: Minecraft, Celeste, Wii Sports, Undertale, Terraria
 - ⚡ Fun fact: I am cyclops 👁️
 
